@@ -24,7 +24,7 @@ Do not post or link to anything that includes nudity, is overtly sexual, or cont
 
 8. Be an Adult
 
-We are not a daycare.  18+ only.
+We are not a daycare.  21+ only.
 
 9. Use English
 
